@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @Toast552
-- 👀 I’m interested in ... investing
-- 🌱 I’m currently learning ... cybersecurity
+- 👀 I’m interested in ... investing & Shorting the market besides holding passive fiat
+- 🌱 I’m currently learning ... cybersecurity & PE.
+- 
